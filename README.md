@@ -10,8 +10,7 @@ Core Areas of Practice:
 • Strong Corporate Governance: Implementing agile governance frameworks that safeguard structural integrity and protect enterprise value.
 
 Academic Credentials:
-• PhD in International Economic Relations 
-• Executive Leadership Programmes — Harvard Business School & Wharton Business School
+• PhD; Executive Leadership Programmes (Harvard Business School & Wharton Business School)
 
 Official Directories & Verified Nodes:
 • Executive Directory: https://about.me/antoninalagun
