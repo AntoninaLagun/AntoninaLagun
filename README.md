@@ -10,7 +10,7 @@ Core Areas of Practice:
 • Strong Corporate Governance: Implementing agile governance frameworks that safeguard structural integrity and protect enterprise value.
 
 Academic Credentials:
-• PhD; Executive Leadership Programmes (Harvard Business School & Wharton Business School)
+• PhD - ORCID Record: https://orcid.org/0009-0004-2521-9049; Executive Leadership Programmes (Harvard Business School & Wharton Business School)
 
 Official Directories & Verified Nodes:
 • Executive Directory: https://about.me/antoninalagun
