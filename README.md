@@ -13,7 +13,10 @@ Academic Credentials:
 • PhD - ORCID Record: https://orcid.org/0009-0004-2521-9049; Executive Leadership Programmes (Harvard Business School & Wharton Business School)
 
 Official Directories & Verified Nodes:
-• Executive Directory: https://about.me/antoninalagun
-• Strategic Hub: https://www.youtube.com/@AntoninaLagun
-• Entity Registry: https://www.crunchbase.com/person/antonina-lagun
-• Communications: https://x.com/Antonina_Lagun
+• https://antoninalagun.com
+• https://about.me/antoninalagun
+• https://www.youtube.com/@AntoninaLagun
+• https://www.crunchbase.com/person/antonina-lagun
+• https://x.com/Antonina_Lagun
+• https://independent.academia.edu/AntoninaLagun
+• https://papers.ssrn.com/sol3/cf_dev/AbsByAuth.cfm?per_id=4052177
